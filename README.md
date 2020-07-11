@@ -43,3 +43,10 @@ I worked and contributed to a lot of other projects too. I helped to launch hell
 
 - You can always [by me a pizza 🍕](https://www.buymeacoffee.com/alfredsgenkins)! I share it with my team.
 - Follow me on [twitter](https://twitter.com/GenkinAlfred). Tweet @ me for questions.
+
+## 🤡 Fun facts
+
+- I am in top 50 most active users in Latvia! How cool! There are not too much people there tho! 😅
+- I joined my current company at the age of 16. Still here, still blazing.
+- I started Twitter recently and it is the most up-to-date information resource I know.
+- I hate JQuery. Or better: I hate people using JQuery for simple things.
