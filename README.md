@@ -41,7 +41,7 @@ I worked and contributed to a lot of other projects too. I helped to launch hell
 
 ## 📢 Reach-out & support
 
-- You can always [by me a pizza 🍕](https://www.buymeacoffee.com/alfredsgenkins)! I share it with my team.
+- You can always [buy me a pizza 🍕](https://www.buymeacoffee.com/alfredsgenkins)! I share it with my team.
 - Follow me on [twitter](https://twitter.com/GenkinAlfred). Tweet @ me for questions.
 
 ## 🤡 Fun facts
